@@ -1,0 +1,1 @@
+Deda: Jebote, jesi li živa?
